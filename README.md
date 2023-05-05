@@ -1,2 +1,2 @@
 # Cursofronteduoc
-Made of Eleana Valera
+Made of Eleana Valera Márquez
